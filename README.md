@@ -1,2 +1,2 @@
-# Previous-Year-Paers-Mains-
+# Previous-Year-Papers-Mains-
 PYQ papers of mains
